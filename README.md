@@ -1,5 +1,7 @@
 ## Sercan Karlıdağ
 
+. karlidagsercan@gmail.com
+
 . [ResearchGate](https://www.researchgate.net/profile/Sercan-Karlidag)
 
 . [CV](https://drive.google.com/file/d/1wbYAf0gnGN9ZqlkQwPhb4UPdlPdSdaEh/view?usp=sharing)
