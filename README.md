@@ -10,4 +10,4 @@
 
 . [Twitter](https://twitter.com/karlidagsercan)
 
-. :v: 
+. ✌️
