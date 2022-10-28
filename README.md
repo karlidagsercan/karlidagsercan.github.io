@@ -1,1 +1,6 @@
-# karlidagsercan.github.io
+karlidagsercan@gmail.com
+ResearchGate
+CV
+ONTO
+Blog
+Twitter
